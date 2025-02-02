@@ -34,7 +34,7 @@ Puis ouvre **index.html** dans un navigateur.
 - 💼 [LinkedIn](https://www.linkedin.com/in/bryan-leke-a69b36260/)  
 
 ### 📬 Contact  
-📧 Email : **tonemail@example.com**  
+📧 Email : **bryanlkcontact0@gmail.com**  
 
 ---
 
